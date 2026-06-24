@@ -1,4 +1,4 @@
-# Rainbet Referral Code RAKEBACK100 Unlocks a 250% Welcome Bonus, 60 Free Spins, and a 20% Rakeback Boost
+# Rainbet Referral Code RAKEBACK100 – 250% Welcome Bonus
 
 **Rainbet Referral Code RAKEBACK100** gives new players a massive **250% welcome bonus up to $2,100 + 60 Free Spins** across the first three deposits, along with an exclusive **20% Rakeback Boost** for the first 72 hours of play.
 
